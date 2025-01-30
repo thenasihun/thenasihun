@@ -1,7 +1,7 @@
 # 🕌 Nasihun | ناصحون | Guidance from the Quran & Hadith  
 > **Spreading Authentic Islamic Knowledge Through Technology**  
 
-![Nasihun Banner](assets/nasihun-banner.png)  
+![Nasihun Banner](assets/nasihun-banner.jpg)  
 
 ## 📖 About Nasihun  
 Nasihun ناصحون is a platform dedicated to sharing authentic Islamic teachings based on the **Quran and Hadith**. Our goal is to develop technology-driven solutions, such as **websites, apps, and content platforms**, to benefit the global Muslim community.  
