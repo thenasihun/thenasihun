@@ -39,7 +39,7 @@ If you are passionate about spreading authentic Islamic knowledge, join us!
 
 ## 🔗 Follow Us  
 - **📢 Stay Connected with Nasihun:**  
-  - 💬 **WhatsApp Channel:** [Join Here](https://wa.me/923106162624)  
+  - 💬 **WhatsApp Channel:** [Join Here](https://whatsapp.com/channel/0029VaCXfSF1NCrXOeyGBk3l)  
   - 🎥 **YouTube:** [Subscribe Now](https://www.youtube.com/@thenasihun)  
   - 🌍 **Facebook:** [Follow Us](https://www.facebook.com/thenasihun)  
   - 🎵 **TikTok:** [@thenasihun](https://www.tiktok.com/@thenasihun)  
