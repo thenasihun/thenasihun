@@ -46,4 +46,4 @@ If you are passionate about spreading authentic Islamic knowledge, join us!
   - 📸 **Instagram:** [@thenasihun](https://www.instagram.com/thenasihun)  
   - 📩 **Email:** [thenasihun@gmail.com](mailto:thenasihun@gmail.com)  
 
-🔖 **#Nasihun #IslamicTech #Quran #Hadith #OpenSourceIslamicProjects**  
+🔖 **#Nasihun #IslamicGuidance #IslamicTechnology #Quran #Hadith #OpenSourceIslamicProjects**  
